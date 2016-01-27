@@ -1,5 +1,5 @@
 ==================
-c4d1g0 (Cá digo!)
+Arthur, te amo! <3
 ==================
 
 Modelo de caderno digital a ser utilizado pelos alunos de meu colega Carlos Negreiro, professor de Português.
